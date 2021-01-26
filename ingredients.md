@@ -1,0 +1,17 @@
+All purpose flour
+Baking soda
+Baking powder
+Salt
+Curd
+Milk
+Olive oil
+Pizza Sauce
+Bell Pepper
+Onion
+Tomato
+COrns
+Jalapeno
+Olives
+Processed Cheese
+Oregano
+Chilli Flakes
