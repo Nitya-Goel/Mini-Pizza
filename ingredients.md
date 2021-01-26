@@ -9,7 +9,7 @@ Pizza Sauce
 Bell Pepper
 Onion
 Tomato
-COrns
+Corns
 Jalapeno
 Olives
 Processed Cheese
